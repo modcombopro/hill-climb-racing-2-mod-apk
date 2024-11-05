@@ -11,13 +11,12 @@ If you're a fan of racing games and want to skip the grind, this modded version 
 
 <h2>Key Features of Hill Climb Racing 2 Mod Apk 🚗</h2>
 Hill Climb Racing 2 Mod Apk offers a range of exciting features that make it stand out from the original game. Here’s a look at some of the best features:
-
 <h3>Feature	Description</h3>
-🎮 Unlimited Coins & Gems	Enjoy: unlimited resources to upgrade your vehicles and unlock special items.
-🚗 Unlocked Vehicles:	Access all vehicles from the start, including rare and powerful ones.
-🏆 Customizable Vehicles:	Fully customize your vehicles with new parts and skins.
-💥 Boosted Performance:	Enjoy enhanced vehicle performance with faster speeds and better handling.
-🌍 New Tracks & Challenges:	Unlock and race on new and exciting tracks with challenging terrains.
+1. 🎮 Unlimited Coins & Gems	Enjoy: unlimited resources to upgrade your vehicles and unlock special items.<br>
+2. 🚗 Unlocked Vehicles:	Access all vehicles from the start, including rare and powerful ones.<br>
+3. 🏆 Customizable Vehicles:	Fully customize your vehicles with new parts and skins.<br>
+4. 💥 Boosted Performance:	Enjoy enhanced vehicle performance with faster speeds and better handling.<br>
+5. 🌍 New Tracks & Challenges:	Unlock and race on new and exciting tracks with challenging terrains.<br>
 
 <h2>Benefits of Using Hill Climb Racing 2 Mod Apk 💡</h2>
 There are several advantages to using the Hill Climb Racing 2 Mod Apk, especially if you want to enhance your gaming experience. Here are some of the key benefits:
